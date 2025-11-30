@@ -1,4 +1,4 @@
-https://media1.tenor.com/images/06dada22862b4d6a2635236aa80d38f0/tenor.gif?itemid=4840096
+(https://media1.tenor.com/images/06dada22862b4d6a2635236aa80d38f0/tenor.gif?itemid=4840096)
 
 # Admin Panel Detector
 
